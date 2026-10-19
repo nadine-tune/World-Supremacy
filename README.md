@@ -211,4 +211,4 @@ World Supremacy is available as a full free version for Windows, with all featur
 Don’t miss out on the epic strategy experience! Download World Supremacy for free today and start your journey to global domination!
 
 ---
-**Last updated:** 2026-10-19 00:58:36 UTC
+**Last updated:** 2026-10-19 06:01:10 UTC
